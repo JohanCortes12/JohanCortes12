@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JohanCortes12
+- 👀 I’m interested in games
+- 🌱 I’m currently learning to program
+- 💞️ I’m looking to collaborate no one at the moment
+- 📫 How to reach me js6849970@gmail.com
